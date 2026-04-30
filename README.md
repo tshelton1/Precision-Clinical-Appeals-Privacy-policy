@@ -79,4 +79,4 @@ We may update this Privacy Policy periodically to reflect changes in our practic
 **10. Contact Us**
 If you have any questions regarding this Privacy Policy, our data security practices, or wish to review our standard Business Associate Agreement (BAA), please contact us at:
 
-Email: misurgeries@gmail.com
+Email: drtdshelton@proton.me
