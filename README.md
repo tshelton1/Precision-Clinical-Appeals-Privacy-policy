@@ -1,3 +1,4 @@
+
 **Privacy Policy**
 Effective Date: 30 April 2026
 Company Name: Precision Clinical Appeals ("Company", "we", "us", or "our")
